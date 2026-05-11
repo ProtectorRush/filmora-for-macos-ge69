@@ -1,4 +1,4 @@
-
+Filmora for macOS updated Transition: chromatic-aberration-fix & video-stabilization offers the most advanced Filmora for macOS transition, with chromatic-aberration-fix and
 
 
 
